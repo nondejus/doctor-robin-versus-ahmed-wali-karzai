@@ -1,2 +1,26 @@
 # doctor-robin-versus-ahmed-wali-karzai
 2002-2022
+
+# psychiater
+https://nl.wikipedia.org/wiki/Psychiater
+
+# methadone
+https://en.wikipedia.org/wiki/Methadone
+
+# fentanyl
+https://en.wikipedia.org/wiki/Fentanyl
+
+# heroine
+https://nl.wikipedia.org/wiki/Hero%C3%AFne
+
+# gaskamer
+https://nl.wikipedia.org/wiki/Gaskamer
+
+# involuntary euthanasia
+https://en.wikipedia.org/wiki/Involuntary_euthanasia
+
+# genocide
+https://en.wikipedia.org/wiki/Genocide
+
+# erasmusbrug
+https://en.wikipedia.org/wiki/Erasmusbrug
